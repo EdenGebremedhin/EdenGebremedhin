@@ -23,5 +23,5 @@ settings. MSc student in Artificial Intelligence at AASTU.
 
 ## Let's connect
 
-📍 Addis Ababa, Ethiopia · 🗣️ Tigrigna, English, Amharic
+📍 Addis Ababa, Ethiopia · 🗣️ English, Amharic, Tigrigna
 📫 edgebremedhin@gmail.com · 🔗 www.linkedin.com/in/eden-h-gebremedhin-96ba1b212
